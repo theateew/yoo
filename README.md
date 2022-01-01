@@ -1,2 +1,2 @@
 # netlab
-![pexels-dương-nhân-1529881](https://user-images.githubusercontent.com/96301284/146924801-3fde3d9c-7e36-47e2-84f9-d796eb5ed348.jpg)
+![pexels-dương-nhân-1529881](https://user-images.githubusercontent.com/96301284/147843445-cad5989a-0a7a-490c-bd96-733a397ddf74.png)
